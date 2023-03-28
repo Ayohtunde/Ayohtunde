@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Ayohtunde
 - 👀 I’m interested in anyththing that had to do with web3
-- 🌱 I’m a UI/UX Designer
+- 🌱 I’m a UI/UX Designer and community manager
 - 💞️ I’m looking to collaborate on projects related to web3 and crypto
 - 📫 How to reach me ... Email - ayotundebayode01@gmail.com, Twitter - @ayohtunde
 
